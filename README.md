@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cyrelarevalo
-- Inerested in coding
-- currently learning ...
+- Intrested in coding/ projects
+- currently learning / student
 - I’m looking to collaborate on have patients especially on projects
 - kiraizaac@gmail.com
 
